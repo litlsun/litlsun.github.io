@@ -1,6 +1,6 @@
-# Екатерина Иванова
+# CV
 
-Россия, Санкт-Петербург | ivanova.ea@hse.ru | +7(960)289-62-31 | Telegram: https://t.me/litlsun
+Россия, Санкт-Петербург | kateivmail@gmail.com | +7(960)289-62-31 | Telegram: https://t.me/litlsun
 
 ## Образование
 
